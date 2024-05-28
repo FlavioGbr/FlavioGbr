@@ -1,4 +1,4 @@
-Boas vindas ao meu perfil 💙💙
+Boas vindas ao meu perfil 🚗🚗
 
 Meu nome é Flávio Gabriel
 
@@ -8,4 +8,3 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 0000107541278XSP@al.educacao.sp.gov.br
 
-0000107541278XSP@al.educacao.sp.gov.br
